@@ -1,1 +1,1 @@
-kuternega.github.io/kurdia.github.io
+https://enotuuuk.github.io/project/
